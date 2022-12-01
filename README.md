@@ -1,1 +1,1 @@
-Learn more about me on [Stack Overflow](https://stackoverflow.com/story/joshshupack)
+Learn more about me on [Stack Overflow](https://stackoverflow.com/users/423384/josh)
